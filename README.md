@@ -1,0 +1,6 @@
+![Screenshot_20220603-142225_OTP_Verification 1](https://user-images.githubusercontent.com/75428863/171823970-80ebfa71-a18b-4e22-a576-92c07f474468.jpg)
+![Screenshot_20220603-142229_OTP_Verification 1](https://user-images.githubusercontent.com/75428863/171824155-2042889a-ec72-44e8-ae2d-291eb049f611.jpg)
+![Screenshot_20220603-142621_OTP_Verification 1](https://user-images.githubusercontent.com/75428863/171825466-0b970567-9ac4-4980-8bf1-c4b3507abe31.jpg)
+![Screenshot_20220603-142150_OTP_Verification 1](https://user-images.githubusercontent.com/75428863/171825532-4128cf57-3355-425d-bd33-aa0cae9b627b.jpg)
+![Screenshot_20220603-142153_OTP_Verification 1](https://user-images.githubusercontent.com/75428863/171825570-43d675bc-6fb0-4df9-a9be-3a5484d7f99b.jpg)
+![Screenshot_20220603-142219_OTP_Verification 1](https://user-images.githubusercontent.com/75428863/171825608-d50a92ec-adfd-4560-829d-ee1b02ed8503.jpg)
